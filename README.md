@@ -1,1 +1,1 @@
-Techmans collection of circuits and things
+TECHMAN'S COLLECTION
